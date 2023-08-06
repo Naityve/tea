@@ -52,3 +52,11 @@ Strong Lavender Aroma, the chamomile overpowers all the other flavours initially
 [PukkaHerbs.com link for this tea](https://www.pukkaherbs.com/uk/en/products/night-time-tea)
 
 ---
+
+**_Pukka Elderberry & echinacea_**
+
+Mild Berry Flavour, noticeable elderberry aroma, berry flavour only lasts for a second and there is a small hint of an aftertaste which fades just as quick. Sweetened with Heally Family Natural Pure Honey.
+
+2/6
+
+[PukkaHerbs.com link for this tea](https://www.pukkaherbs.com/uk/en/products/elderberry-and-echinacea-tea)
