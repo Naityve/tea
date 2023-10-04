@@ -21,6 +21,8 @@ Lovely strong Citrus Flavour - good replacement for adding lemon drops
 
 **_Heally Family Natural Pure Honey_**
 
+Lovely natural taste honey. Perfect sweetness profile.
+
 [HealysHoney.ie link to this product](https://www.healyshoney.ie/blossom-honey/)
 
 ## _Tea Reviews_
@@ -60,3 +62,13 @@ Mild Berry Flavour, noticeable elderberry aroma, berry flavour only lasts for a 
 2/6
 
 [PukkaHerbs.com link for this tea](https://www.pukkaherbs.com/uk/en/products/elderberry-and-echinacea-tea)
+
+---
+
+**_Pure Tea Darjeeling_**
+
+Highly floral and citrusy in smell, Very pleasant. Floral in taste and very smooth fading aftertaste of tannins. Sweetened with Heally Family Natural Pure Honey.
+
+4.9/6
+
+[Donkos.be link for this tea](https://www.donkos.be/en/pure-tea-black-line/13-darjeeling-5410534160326.html)
